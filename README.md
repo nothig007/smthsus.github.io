@@ -1,2 +1,0 @@
-# smthsus.github.io
-yeah
